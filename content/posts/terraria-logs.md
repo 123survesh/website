@@ -1,5 +1,5 @@
 ---
-title: "Terraria Journey"
+title: "Terraria Logs"
 date: 2024-01-01T07:50:50+05:30
 draft: false
 toc: false
@@ -31,7 +31,6 @@ During my visit to the sky islands, I got to replace my default weapons with som
 
 #### Things I am looking forward to
 
-- I still have not found a crystal heart, I will be needing it to increase my life count. 
+- I still have not found a crystal heart, I will be needing it to increase my life count. (later that day I got one!!)
 - Fight the eye of cthulu or some boss
 - Get some wings
-
