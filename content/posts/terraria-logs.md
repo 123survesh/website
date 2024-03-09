@@ -9,6 +9,29 @@ tags:
   - terraria
 ---
 
+### 09-03-2023
+
+I got bored and felt that the game was quite repetetive. The end.
+
+### 06-01-2024
+
+Today's run was quite eventful, but before that let me fill in on some of the runs I have had in the past week. 
+
+
+#### Past week's run
+I have been exploring the underground in search of crystal hearts, I needed 5 hearts to make my health to be 10 hearts = 200 health points in total to summon the eye of Cthulu. I had already found a crystal heart in my previous run on the new year day of 2024. Back to exploring the underground, as I was exploring the underground, I found a place that was filled with a lot of statues, it was under the desert biome I believe, kind of reminded me the treasures of egypt. I had so many statues that I had to throw away most of my inventory to carry them all. I brought them upto the surface and built a house for every one of thoe statues. 
+
+In the same place I believe there was a chest and it had a boot with wings, that makes the wearer move fast. I had heard about it before in a youtube video, so I equipped it. After this I decided to explore the right side of the map on the surface. With the fast boots, I was able to cover vast areas of land quickly. I came across a land that was purple in color, I thought it was new biome and didn't pay more attention to it. The creatures in this region looked quite menacing like true monsters not the cute zombies or blobs that we face in the usual biomes. After that I started coming across more holes that led me to the underground. I fell into one by mistake and I travelled down to explore it. I couldn't mine any of the sand / blocks in this new biome. I thought this was a section of the game that was only open to advanced players and came back to my home and exited the game. 
+
+That new biome was nothing but corruption creeping up in my world (based on terraria wiki).
+
+#### Today's run
+
+Today I woke up early and started my run. Today I had two plans. One was to explore the underground in search of more crystal hearts and to create a bridge that connected all sky islands. During my underground exploration I ventured the grounds beneath the ice biome. I was able to find two cool things, actually three. I found a crystal heart, a demon forge (hope I got the name right, I only saw a picture of it once in the wiki) and in a chest, I got the item to summon the eye of Cthulu. At last, I knew it was time for a boss fight. My first boss fight in terraria.
+
+
+
+
 ### 01-01-2024
 
 I have been playing terraria for a few weeks now. Terraria is a 2D minecraft like game, where you mine stuff in the morning and fight demons in the night. Its kind of cool, it has a lot of secret things that the player has to unravel. Its kind of fun.
